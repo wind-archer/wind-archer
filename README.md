@@ -6,13 +6,13 @@
 
 ---
 
-also me ⸻> 　 　[main](https://github.com/seildirector) 　[alt](https://github.com/ssaparata) 　[EVIL](https://github.com/nezoshokii)
+　　also me ⸻> 　[main](https://github.com/seildirector) 　[alt](https://github.com/ssaparata) 　[EVIL](https://github.com/nezoshokii) <br>
 
-　 　
+　
 
-this account is used for spam following people,
-
-i do not check who i follow, please block if unwanted !
+　
+this account is used for spam following people, <br>
+i do not check who i follow, please block if unwanted ! <br>
 
 ---
 

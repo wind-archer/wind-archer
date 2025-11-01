@@ -6,7 +6,7 @@
 
 ---
 
-　　also me ⸻> 　[main](https://github.com/seildirector) 　[alt](https://github.com/ssaparata) 　[EVIL](https://github.com/nezoshokii) <br>
+　　also me ⸻> 　[main](https://github.com/fluidxon) 　[alt](https://github.com/ssaparata) 　[EVIL](https://github.com/nezoshokii) <br>
 
 　
 

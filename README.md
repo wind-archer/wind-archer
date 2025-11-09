@@ -2,16 +2,15 @@
 
 <a href="https://guns.lol/seildirectory"><img src="https://files.catbox.moe/bzshr0.webp" width="170" height="auto" align="left"></img></a>
 
-<img src="https://komarev.com/ghpvc/?username=2-time&label= flow &color=ac3030&style=water" align="auto">　  𝓵　 　  09/13/25
+<img src="https://komarev.com/ghpvc/?username=2-time&label= flow &color=ac3030&style=water" align="auto">　　  𝓵　 　  09/13/25
 
 ---
 
-　　also me ⸻> 　[main](https://github.com/fluidxon) 　[alt](https://github.com/ssaparata) 　[EVIL](https://github.com/nezoshokii) <br>
+alter egos ⸻> 　[main](https://github.com/fluidxon) 　[alt](https://github.com/ssaparata) 　[EVIL](https://github.com/nezoshokii) <br>
 
 　
 
-　
-this account is used for spam following people,
+this account is used for spam following people: <br>
 i do not check who i follow, please block if unwanted<br>
 
 ---

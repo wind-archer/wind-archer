@@ -1,7 +1,7 @@
 
 <div align="center">
     
-<a href="https://guns.lol/seildirectory"><img src="https://files.catbox.moe/bzshr0.webp" width="170" height="auto" align="auto"></img></a>
+
 
 ⸻⸻⸻
 

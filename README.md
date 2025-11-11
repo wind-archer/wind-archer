@@ -2,6 +2,7 @@
 <div align="center">
     
 
+<a href="https://rentry.co/dave-karkat"> rentry </a>
 
 ⸻⸻⸻
 
